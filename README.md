@@ -3,9 +3,11 @@
 Paroles de la chanson Baila Me par Gipsy kings:
 
 
-Cuando ski Maria Dolores
-Cuando ski quei mal d'amore
-Cuando ski quei mal a su vera
+
+bla bla bla bla
+bla bla bla 
+
+
 Cuando ski me va al dottore
 
 Baila baila baila baila
